@@ -1,0 +1,2 @@
+# lofoto
+bengkulu
